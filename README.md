@@ -13,7 +13,7 @@ Communication
 Our official contract address on Tron : TMUQdByKzEpeJMqqLvULQF3XL7BHHK9TtR
 Our official site address : www.macacacoin.com
 Our official Twitter address : @MacacaCoin
-Our official Facebook address : https://www.facebook.com/MacacaCoin-107123611831396
+Our official Linkedin address : https://www.linkedin.com/in/macaca-coin-64417b229/
 Our official Medium Address : https://medium.com/@macacacoin
 Our official Email Address : support@macacacoin.com ,buy@macacacoin.com , ceo@macacacoin.com
 
