@@ -14,3 +14,8 @@ Our official contract address on Tron : TMUQdByKzEpeJMqqLvULQF3XL7BHHK9TtR
 Our official site address : www.macacacoin.com
 Our official Twitter address : xxxxxxxxxxxxxxxxxxxxxxxx
 Our official Facebook address : xxxxxxxxxxxxxxxxxxxxx
+Our official Telegram address : xxxxxxxxxxxxxxxxxxxxxx
+Our official Discord Address : xxxxxxxxxxxxxxxxxxxxxxxx
+Our official Email Address : support@macacacoin.com ,buy@macacacoin.com , ceo@macacacoin.com
+
+Remember that all our communication channels are listed above and only through them you can contact us. All other sites claiming to be us are not our original messengers. And we have nothing to do with them. 
