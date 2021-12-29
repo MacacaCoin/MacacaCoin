@@ -11,10 +11,15 @@ We also inform you that (MCC) is a TRC-20 token that does not use the burn -- mi
 Communication
 
 Our official contract address on Tron : TMUQdByKzEpeJMqqLvULQF3XL7BHHK9TtR
+
 Our official site address : www.macacacoin.com
+
 Our official Twitter address : @MacacaCoin
+
 Our official Linkedin address : https://www.linkedin.com/in/macaca-coin-64417b229/
+
 Our official Medium Address : https://medium.com/@macacacoin
+
 Our official Email Address : support@macacacoin.com ,buy@macacacoin.com , ceo@macacacoin.com
 
 Remember that all our communication channels are listed above and only through them you can contact us. All other sites claiming to be us are not our original messengers. And we have nothing to do with them. 
