@@ -1,3 +1,7 @@
+![block3](https://user-images.githubusercontent.com/96337846/151164442-d8554395-e24d-4852-a354-889f5ac63ce3.gif)
+
+
+
 In recent times, meme coins have become more popular than mainstream cryptocurrencies such as Bitcoin and Ethereum. According to Coinmarketcap.com, the top two meme cryptocurrencies, Shiba Inu and Dogecoin, are now among the top 10 by market value. According to CoinGecko, Dogecoin, which originated in 2013 as a joke, ranks No. 10 by a market value of over $35 billion. It is currently trading at around 27 cents, while rival token Shiba Inu, which was started in 2020 by an anonymous person known as ‘Ryoshi’ to poke fun at Dogecoin, ranks No.9 with a market value of over $38 billion. Also, Shiba Inu (the supporting community calls it the “Dogecoin killer”) hit an all-time high of $0.00008616 per token on October 26, 2021. MacacaCoin’s goal will be to break through this market cap in the near future. MacacaCoin To The Moon !!! . MacacaCoin is the mascot of a wonderful animal. We invite you to read the rest of the WhitePaper so that you can learn a little more about these monkeys and how important they are to us.
 
 
