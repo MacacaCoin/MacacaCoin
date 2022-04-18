@@ -24,6 +24,17 @@ Our official Linkedin address : https://www.linkedin.com/in/macaca-coin-64417b22
 
 Our official Medium Address : https://medium.com/@macacacoin
 
+Our official YouTube address: youtube.com/channel/UCVAFgdKJSmXcSesyObEC08Q
+
+Our official Telegram address: https://t.me/+vV4y9KlDk7JhYmI0
+
+Our official Reddit address: https://www.reddit.com/user/Macacacoin
+
+Our official Facebook address: Coming Soon
+
+Our official Email Address : support@macacacoin.com
+
+
 Our official Email Address : support@macacacoin.com ,buy@macacacoin.com , ceo@macacacoin.com
 
 Remember that all our communication channels are listed above and only through them you can contact us. All other sites claiming to be us are not our original messengers. And we have nothing to do with them. 
