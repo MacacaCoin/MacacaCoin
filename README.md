@@ -24,7 +24,7 @@ Our official Linkedin address : https://www.linkedin.com/in/macaca-coin-64417b22
 
 Our official Medium Address : https://medium.com/@macacacoin
 
-Our official YouTube address: youtube.com/channel/UCVAFgdKJSmXcSesyObEC08Q
+Our official YouTube address: https://www.youtube.com/channel/UCVAFgdKJSmXcSesyObEC08Q
 
 Our official Telegram address: https://t.me/+vV4y9KlDk7JhYmI0
 
